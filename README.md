@@ -1,2 +1,3 @@
-git # anc
-tran quang vinh ngu 
+
+
+troi mua to qua nen toi khong di lam
