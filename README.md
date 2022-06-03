@@ -1,4 +1,4 @@
 
 trời mưa to quá nên tôi đi làm sớm
 troi mua to qua nen toi khong di lam
-anccccccasdasdasasdsa
+hello xin chào 3/6
